@@ -1,4 +1,4 @@
-## Hi there 👋
+## a sua mentalidade te deixa te fraco
 
 <!--
 **jhoni135063/jhoni135063** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
